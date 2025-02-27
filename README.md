@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to get file from cloud secured launcher/injector
 - 💞️ I’m looking to collaborate on updating cracks
 - 📫 How to reach me discord : l9becher
-- ⚡ Fun fact: I got doxxed by 
+- ⚡ Fun fact: I got doxxed by nn cheat developer but he got fake info + I hate skids
 
 <!---
 Becherko/Becherko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
